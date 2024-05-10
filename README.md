@@ -23,9 +23,13 @@
 B. Customers/Channels with Significant Growth
 
 📍 **Chiptec**: 622.0% year-over-year growth
+
 📍 **Nomad Stores**: 416.9% year-over-year growth
+
 📍 **Lotus**: 415.2% year-over-year growth
+
 📍 **Propel**: 340.6% year-over-year growth
+
 
 C. Customers/Channels with Declining Sales
 

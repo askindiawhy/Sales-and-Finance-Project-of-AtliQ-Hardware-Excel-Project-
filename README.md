@@ -1,5 +1,6 @@
 ![image](https://github.com/askindiawhy/Sales-and-Finance-Project-of-AtliQ-Hardware-Excel-Project-/assets/121374921/33bf1692-f711-4a6b-ad76-5f065a620b4e) | 
-![image](https://github.com/askindiawhy/Sales-and-Finance-Project-of-AtliQ-Hardware-Excel-Project-/assets/121374921/841bc636-702c-4575-872b-f810375e9099)
+![image](https://github.com/askindiawhy/Sales-and-Finance-Project-of-AtliQ-Hardware-Excel-Project-/assets/121374921/fc3f3713-4b52-44c4-8ffb-bd58f6836724)
+
 
 
 
